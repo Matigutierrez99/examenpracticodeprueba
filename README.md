@@ -4,4 +4,4 @@ Evelin Camejo
 Alexia Gozuk
 Emily Pina
 Sofia Levin
-
+Luciano Rodriguez
